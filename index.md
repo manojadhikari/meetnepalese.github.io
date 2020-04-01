@@ -5,4 +5,4 @@ If you need help with something:
 
 ### Support or Contact
 
-Having trouble with Pages?[contact support](meetnepalisf@gmail.com) and we’ll help you sort it out.
+Having trouble with Pages?[contact supportmeetnepalisf@gmail.com)] and we’ll help you sort it out.
